@@ -1,0 +1,2 @@
+# gulcintunar
+CHİHUAHUA ŞİVAVA SATILIK 
